@@ -1,0 +1,2 @@
+hétfő
+játszani fogok nyáron
